@@ -6,5 +6,10 @@ tv shows & movies : the worst of evil, the k2, squid game, gravity falls, teen t
 music : midori, sheena ringo, nayutalien, tyler the creator, vocaloid
 youtube stuff : lifesteal, thatchiefguy, thedupertrooper, zman1064, tomska & friends
 
-there might be more stuff haha. int if you care about any of these! just know i might hide or block you whenever
-im a system, if you want ask about that idrc
+there might be more stuff haha. int if you care about any
+
+of these! just know i might hide or block you whenever
+i kinda just stand around people if i interact i apologize 
+i like darklico talk to me about that if u care
+
+tk is king
